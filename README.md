@@ -11,3 +11,5 @@ Perfect Money $: U22270614
 Saweria $: https://saweria.co/Shin403
 
 Trakteer $: https://trakteer.id/shin403
+
+![IMG_20230427_141857](https://user-images.githubusercontent.com/59664965/234788832-6487d099-2f7a-4087-9d64-d098efb66aa6.jpg)
